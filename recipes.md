@@ -1,0 +1,1 @@
+put butter on the pan/grill and wait till it is hot and add the sandwich and afer 1 minute take it out and enjoy delicous
